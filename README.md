@@ -1,1 +1,1 @@
-![Yennefer of Vengerberg](https://i.imgur.com/71jIe6R.jpg)
+![Yennefer of Vengerberg](https://i.imgur.com/rabFqWR.png)
